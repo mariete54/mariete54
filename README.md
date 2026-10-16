@@ -2,6 +2,6 @@ new web designer ⌨
 
 gamer 🎮
 
-estuciante de daw
+estudiante de daw
 
 junior
